@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **pratiksawant474@gmail.com**
 
-- ⚡ Fun fact **I also Trading**
+- ⚡ Fun fact **I also Love Trading**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
